@@ -1,0 +1,1 @@
+D:\puthon cloudyML\Sample Files\sample3.jpg
